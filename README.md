@@ -1,0 +1,1 @@
+Fiquei super perdida com o começo do github, precisei reinstalar 2x, mas agora estou entendendo melhor
